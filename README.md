@@ -1,2 +1,5 @@
 # First-Repo
-Trying tho out
+Trying this out
+It is funny to learn new stuff.
+Here we go!
+S
